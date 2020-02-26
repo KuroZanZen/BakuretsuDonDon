@@ -1,0 +1,2 @@
+# BakuretsuDonDon
+i like money
